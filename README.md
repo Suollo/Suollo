@@ -1,6 +1,6 @@
 I am Suollo
 
-minecraft, kotlin (in process of learning)
+Ima doing some random shit with random langs
 
 i like videogames
 
